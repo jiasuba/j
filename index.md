@@ -11,3 +11,5 @@ PC安装包：<a href="http://qidianpps.com/downfile/?sys=0&amp;fn=150001" targe
 ios、mac到官网注册下载，注册即送1小时试用时间。
 
 一键加速，推荐cn2线路
+
+<img class="aligncenter size-full wp-image-71" src="https://liewuba.com/wp-content/uploads/2019/07/jiasuq.png" alt="" width="400" height="341" />
