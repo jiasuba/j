@@ -1,6 +1,6 @@
 <strong>网络加速器更新地址</strong>
 
-官网有可能会改，建议收藏书签
+官网有时候会改，建议收藏书签
 
 官网：<a href="http://qidianppx.com/?tgid=150001" target="_blank" rel="noopener">点击前往</a>
 
